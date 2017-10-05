@@ -1,4 +1,4 @@
-# how-to-use-mdm-dep-bypass
+# how-to-use-iactivate-mdm-dep-bypass
 How to use iActivate Software to ByPass iPhone &amp; iPad block
 
 How to use iActivate App
